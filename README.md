@@ -1,0 +1,1 @@
+# hajimesat0.github.io
